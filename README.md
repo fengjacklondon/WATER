@@ -74,3 +74,7 @@ Take no thought of who is right or wrong or who is better than. Be not for or ag
 Empty your mind, be formless. Shapeless, like water. If you put water into a cup, it becomes the cup. You put water into a bottle and it becomes the bottle. You put it in a teapot it becomes the teapot. Now, water can flow or it can crash. Be water my friend. 
 
 　　放空你的思想，透明的，无定形的，像水一样，如果你将水放入杯子，它就变成杯子的形状，你将水放入瓶子，它就变成瓶子的形状，你把水放入茶杯中，它就变成茶杯的形状。水可以柔软的流动，也可以坚硬的凝结，像水一样吧，我的朋友。
+
+
+迷茫的痛楚已经消逝，沿着光亮的方向，徐徐而进吧 
+2017年7月19日19:13:55
